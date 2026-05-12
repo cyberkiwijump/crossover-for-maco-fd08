@@ -1,4 +1,4 @@
-# 
+# updated CrossOver for macOS Workflow | seamless-integration + shared-folders offers the most advanced CrossOver for macOS workflow, with seamless-integration and shared-folders.
 
 
 
